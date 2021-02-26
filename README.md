@@ -1,2 +1,2 @@
 # TOMIX.SAFETY.COMPANY
-https://toimx-bhp.pl
+https://tomix-bhp.pl
